@@ -2,7 +2,7 @@
 - 👀 I’m interested in dev and music
 - 🌱 I’m currently learning English
 - 💞️ I’m looking to collaborate on nothing for moment
-- 📫 How to reach me ...
+- 📫 How to reach me @marceon2
 - 😄 Pronouns: Marce - Chelo 
 - ⚡ Fun fact: I dance Salsa-Bachata
 
